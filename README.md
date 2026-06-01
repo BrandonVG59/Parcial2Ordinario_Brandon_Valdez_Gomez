@@ -1,2 +1,1 @@
 # Parcial2Ordinario_Brandon_Valdez_Gomez
-# Parcial2Ordinario_Brandon_Valdez_Gomez
